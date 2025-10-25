@@ -1,6 +1,6 @@
 
 # 💫 About Me:
-Estudante de Análise e Desenvolvimento de Sistemas 🖥️<br>Técnica em Edificações 🏗️
+Graduanda em Sistemas de Informação 🖥️<br>Analista e Desenvolvedora de Sistemas </><br>Técnica em Edificações 🏗️
 
 
 ## 🌐 Socials:
